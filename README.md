@@ -2,7 +2,7 @@
 •	Poliéster: A escolha ideal para vestuário do dia a dia — de camisas a casacos. Durável, acessível e personalizável em cor e acabamento. O poliéster de base biológica está a surgir como uma opção mais ecológica.
 •	Borracha: Perfeito para roupas desportivas, de exterior e de trabalho. Oferece flexibilidade e resistência à água, ideal para peças de vestuário ativo ou de proteção.
 2. Materiais Naturais e Sustentáveis:
-•	Madrepérola (Concha): Comum em roupa formal, camisas de luxo e blusas. Acrescenta um toque refinado e elegante com a sua iridescência natural. Biodegradável e amiga do ambiente.
+•	<a href="https://botoeselite.com/" target="_blank">Madrepérola</a> (Concha): Comum em roupa formal, camisas de luxo e blusas. Acrescenta um toque refinado e elegante com a sua iridescência natural. Biodegradável e amiga do ambiente.
 •	Corozo (Noz de Tagua): Utilizado em fatos, casacos e peças artesanais. Altamente sustentável e com um grão natural único, perfeito para adicionar textura subtil.
 •	Madeira: Ideal para vestuário casual, coleções ecológicas e designs rústicos. Leve e biodegradável, mas sensível à humidade.
 •	Coco: Popular em roupas de praia, vestuário de inspiração tropical ou coleções ecológicas. Leve, com uma estética natural.
